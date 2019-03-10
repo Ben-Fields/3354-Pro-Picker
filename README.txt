@@ -1,1 +1,1 @@
-Professional Recommendation Project
+Pro Rec
